@@ -20,3 +20,21 @@ Unlike other data science nerds, I love metal music and fashion, which are the b
 My favorite metal band is “vektor”, and fashion brands are “the row” and “theory”.
 
 (btw highly recommend [Vektor](https://www.metal-archives.com/bands/Vektor/87803) the prog thrash metal band!
+
+### 5
+-I generate cold jokes at a mind-blowing speed.
+
+-You're are a real AC(air conditioner)
+
+-Designed in Milan
+
+(Cause A.C. Milan)
+
+### 6
+-Some wounded are not supposed to coverred wholly.
+
+-Just like quilt and secrets!
+
+-Why secrets?
+
+> Because of PUBLIC KEY :)
