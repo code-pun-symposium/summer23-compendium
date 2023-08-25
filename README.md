@@ -38,3 +38,7 @@ My favorite metal band is “vektor”, and fashion brands are “the row” and
 -Why secrets?
 
 > Because of PUBLIC KEY :)
+
+### 7
+- Why is diarrhea hereditory? 
+- Because it runs in your genes (jeans)
